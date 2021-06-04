@@ -2,6 +2,8 @@
 Consumer Advocacy Peer Educators | SUPERVISING
 
 ____________________________________________________________________________________________________________________________________________________________________
-PEER SUPPORT TOOL KIT
+DBHIDS | PEER SUPPORT TOOL KIT
 https://dbhids.org/wp-content/uploads/1970/01/PCCI_Peer-Support-Toolkit.pdf 
 
+____________________________________________________________________________________________________________________________________________________________________
+DBHIDS | PEER SUPPORT TOOL KIT
