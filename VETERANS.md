@@ -1,5 +1,5 @@
 # C.A.P.E.
-Consumer Advocacy Peer Educators
+Consumer Advocacy Peer Educators | VETERANS
 
 ____________________________________________________________________________________________________________________________________________________________________
 VA | Peer Specialists Toolkit:  
